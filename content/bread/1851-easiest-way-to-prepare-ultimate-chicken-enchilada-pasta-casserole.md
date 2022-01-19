@@ -1,0 +1,105 @@
+---
+description: "Easiest Way to Prepare Ultimate Chicken enchilada pasta casserole"
+title: "Easiest Way to Prepare Ultimate Chicken enchilada pasta casserole"
+slug: 1851-easiest-way-to-prepare-ultimate-chicken-enchilada-pasta-casserole
+date: 2020-09-04T08:27:30.426Z
+image: https://img-global.cpcdn.com/recipes/5392579653795840/751x532cq70/chicken-enchilada-pasta-casserole-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5392579653795840/751x532cq70/chicken-enchilada-pasta-casserole-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5392579653795840/751x532cq70/chicken-enchilada-pasta-casserole-recipe-main-photo.jpg
+author: Chris Jacobs
+ratingvalue: 4.6
+reviewcount: 16178
+recipeingredient:
+- "2 tbsp olive oil"
+- "4 cooked chicken breasts cubed"
+- "1 bunch diced green onions"
+- "2 clove garlic minced"
+- "1 red pepper diced"
+- "4 oz can diced green chiles"
+- "2 tsp chili powder"
+- "1 tsp ground cumin"
+- "2 can 10 ounce enchilada sauce"
+- "15 oz can of black beans"
+- "2 cup shredded cheese"
+- "1 cup sour cream"
+- "1 lb Penne pasta"
+- " Optional Toppings"
+- "1 avocado"
+- "1 green onions"
+- "1 black olives"
+- "1 tomatoes"
+- "1 sour cream"
+recipeinstructions:
+- "Cook pasta according to the package directions.  Drain and set aside."
+- "In a large skillet, heat olive oil and cook chicken.  Set aside to cool and cube.  Add garlic, onion and red pepper to skillet and cook until tender."
+- "Add cubed chicken, green chilis, cumin, chili powder, salt and enchilada sauce until heated through."
+- "Add the pasta to the sauce.  Stir in cheese until melted and sour cream right before serving.  Add toppings and serve."
+categories:
+- Recipe
+tags:
+- chicken
+- enchilada
+- pasta
+
+katakunci: chicken enchilada pasta 
+nutrition: 210 calories
+recipecuisine: American
+preptime: "PT32M"
+cooktime: "PT53M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+![Chicken enchilada pasta casserole](https://img-global.cpcdn.com/recipes/5392579653795840/751x532cq70/chicken-enchilada-pasta-casserole-recipe-main-photo.jpg)
+
+Hey everyone, I hope you are having an incredible day today. Today, I'm gonna show you how to prepare a special dish, chicken enchilada pasta casserole. One of my favorites. This time, I will make it a little bit tasty. This will be really delicious.
+
+LOVE this easy Chicken Enchilada Casserole recipe! It&#39;s made with the best homemade enchilada sauce, and layered with corn tortillas, cheese, beans, and your favorite fillings. When I say this recipe is easy, I mean you&#39;ll still have time to paint your nails or do an extra load of laundry in the time it would normally take to make Toss in the enchilada sauce, seasonings and pasta and let the Instant Pot cook it in just FOUR minutes! Here&#39;s a perfect entire symphony of favors from diced/shredded chicken layered w/ shredded Colby Jack cheese, corn.
+
+Chicken enchilada pasta casserole is one of the most popular of recent trending foods in the world. It's enjoyed by millions every day. It's easy, it's quick, it tastes delicious. Chicken enchilada pasta casserole is something that I've loved my whole life. They are fine and they look fantastic.
+
+
+To begin with this particular recipe, we must first prepare a few ingredients. You can cook chicken enchilada pasta casserole using 19 ingredients and 4 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Chicken enchilada pasta casserole:
+
+1. Make ready 2 tbsp olive oil
+1. Get 4 cooked chicken breasts, cubed
+1. Take 1 bunch diced green onions
+1. Get 2 clove garlic, minced
+1. Take 1 red pepper, diced
+1. Make ready 4 oz can diced green chiles
+1. Make ready 2 tsp chili powder
+1. Take 1 tsp ground cumin
+1. Make ready 2 can 10 ounce enchilada sauce
+1. Get 15 oz can of black beans
+1. Get 2 cup shredded cheese
+1. Prepare 1 cup sour cream
+1. Get 1 lb Penne pasta
+1. Get  Optional Toppings
+1. Make ready 1 avocado
+1. Take 1 green onions
+1. Prepare 1 black olives
+1. Make ready 1 tomatoes
+1. Take 1 sour cream
+
+
+This enchilada casserole can easily be made ahead. This chicken enchilada casserole is creamy cheesy perfection and it&#39;s so easy to throw together since everything is layered together instead of rolled. My kids love this chicken enchilada casserole and I bet yours will too! This was a total hit on my dinner table. 
+
+<!--inarticleads2-->
+
+##### Steps to make Chicken enchilada pasta casserole:
+
+1. Cook pasta according to the package directions.  Drain and set aside.
+1. In a large skillet, heat olive oil and cook chicken.  Set aside to cool and cube.  Add garlic, onion and red pepper to skillet and cook until tender.
+1. Add cubed chicken, green chilis, cumin, chili powder, salt and enchilada sauce until heated through.
+1. Add the pasta to the sauce.  Stir in cheese until melted and sour cream right before serving.  Add toppings and serve.
+
+
+My kids love this chicken enchilada casserole and I bet yours will too! This was a total hit on my dinner table. Of course, my kids will gobble up anything. Casseroles make perfect meal-prep dinners--this enchilada version is so easy to prep ahead. The whole casserole can be built and left to hang out in the refrigerator for up to three days. 
+
+So that's going to wrap it up for this exceptional food chicken enchilada pasta casserole recipe. Thanks so much for your time. I'm sure that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
